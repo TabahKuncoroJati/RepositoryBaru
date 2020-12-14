@@ -1,0 +1,2 @@
+# RepositoryBaru
+Semoga bisa, Aamiin
